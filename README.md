@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on Different projects
 
-📫 If you want to reach me > +251932382336 / thebenefactor37@gmail.com
+📫 If you want to reach me > thebenefactor37@gmail.com
