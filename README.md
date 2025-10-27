@@ -5,5 +5,3 @@
 🌱 I’m currently a day trader + software engineer + Musician
 
 💞️ I’m looking to collaborate on Different projects
-
-📫 If you want to reach me > thebenefactor37@gmail.com
